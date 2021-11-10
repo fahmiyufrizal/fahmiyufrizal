@@ -3,7 +3,7 @@ Reach me at
 - fb.me/xbe24
 
 Donate me at 
-- trakteer.id/fahmiyufrizal/tip (Indonesian)
+- DANA/OVO/SPay (Indonesian) (PM at facebook)
 -  or via PayPal (rizalboleh24@gmail.com) if u want to support me more!
 
 <!---
