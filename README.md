@@ -4,7 +4,7 @@ Reach me at
 
 Donate me at 
 - DANA/OVO/SPay (Indonesian) (PM at facebook)
--  or via PayPal (rizalboleh24@gmail.com) if u want to support me more!
+-  or via PayPal (paypal.me/fahmiyufrizal) if u want to support me more!
 
 <!---
 fahmiyufrizal/fahmiyufrizal is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
