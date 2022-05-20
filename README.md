@@ -4,7 +4,7 @@ Reach me at
 
 Donate me at 
 - DANA (https://bit.ly/danain_fahmiyufrizal)
--  or via PayPal (paypal.me/fahmiyufrizal) if u want to support me more!
+-  or via PayPal (https://paypal.me/fahmiyufrizal) if u want to support me more!
 
 <!---
 fahmiyufrizal/fahmiyufrizal is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
