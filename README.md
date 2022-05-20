@@ -3,7 +3,7 @@ Reach me at
 - fb.me/xbe24
 
 Donate me at 
-- DANA/OVO/SPay (Indonesian) (PM at facebook)
+- DANA (https://bit.ly/danain_fahmiyufrizal)
 -  or via PayPal (paypal.me/fahmiyufrizal) if u want to support me more!
 
 <!---
